@@ -10,4 +10,4 @@
 
 本站提供海量高清电影、电视剧、综艺等内容，更新速度飞快，保证最流畅的观影体验。支持多平台访问，免下载即看，用户可随时随地享受丰富的娱乐资源。我们致力于提供无广告干扰的纯净观影环境，让您畅享影视乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan7 ）</span>
